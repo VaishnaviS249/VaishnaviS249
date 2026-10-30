@@ -1,4 +1,4 @@
-# Hi, I'm Vaishnavi S 👋
+# Hi, I'm Vaishnavi S 
 
 ### Final-Year Information Science Engineering Student | 2027 Graduate
 
